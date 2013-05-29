@@ -14,5 +14,6 @@ but u are not even trying to listen to her..
 
 ???//?????
 
-why is siddy so angry?
-angry old man
+why is siddy so angry, is because of you.
+
+you do not even explains me anything.
